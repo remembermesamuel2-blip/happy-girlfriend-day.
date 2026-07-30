@@ -1,1 +1,1 @@
-# happy-girlfriend-day.
+# happy-girlfriend-day
